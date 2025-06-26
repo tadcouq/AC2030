@@ -13,4 +13,4 @@ BTL nhóm 24, mã lớp 158784, kỳ học 20242 <br>
 Hanoi University of Science and Technology (HUST) <br>
 Faculty of Education, with MICA Institute - School of Electrical and Electronic Engineering
 
-(c) 2025 @hust_lin.all.day | @tadcouq._
+(c) 2025 4rever rebl | @tadcouq._
